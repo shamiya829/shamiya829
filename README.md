@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on any projects on ChatGPT, Whisper, or Jukebox
 - 📫 How to reach me ...
   shumeeah@gmail.com
-  
+  WeChat: shumeeah
 
 <!---
 shamiya829/shamiya829 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
